@@ -21,6 +21,8 @@ Cela pourrait prendre une des formes suivantes :
 - Des entretiens d'agents pour comprendre et/ou connaître les pratiques vertueuses et savoir si la dématérialisation a réduit le temps avec les élèves, avec les familles. **Est-ce que c'est pire avec DossierSCO ?**
 
 
+**Via DossierSco, nous n'avons pas d'influence sur cette relation attentionée des établissements vers les familles et élèves. Nous visons donc de créer des conditions propices à cette relation, et charge ensuite aux établissements de mettre en place des pratiques qui leur correspondent.** Nous créeons ces conditions favorables en : 1- facilitant la vie des établissements, 2- facilitant la vie des familles. Ces 2 directions apportent de la valeur en elles-mêmes, en plus, nous l'espérons, de permettre aux établissement de prendre davantage soin des personnes en difficulté.
+
 ## Faciliter la vie
 
 - Pour les établissement
